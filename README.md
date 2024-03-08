@@ -16,7 +16,7 @@ While Phlox traverses the silent and mysterious bamboo forest, our hopeless litt
 - [José Tuna](https://www.linkedin.com/in/josetuna)
 - [José Pereira](https://www.linkedin.com/in/sapereira97)
 - [Henrique Martins](https://www.linkedin.com/in/henriquemartins97)
-- Álvaro Mendes
+- [Álvaro Mendes](https://www.linkedin.com/in/alvaro-afp-mendes/)
 
 ## How to play
 
